@@ -1,5 +1,7 @@
 # andr_tuan8
 
+link video: https://youtube.com/playlist?list=PLNqcHXOGd7z1q3kcFHJMfaBOvMY2U8txY
+
 
 link snack-expo:
 
